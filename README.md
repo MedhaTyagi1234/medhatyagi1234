@@ -3,7 +3,7 @@
 ## 🏅 HackerRank Gold Badge – SQL
 🥇 Certified Gold in SQL on HackerRank
 
-🔗 [View my HackerRank Profile](Medha Tyagi - tyagimedha11 | HackerRank https://share.google/ZHvEk8FBIOnAU9d4f
+🔗 [View my HackerRank Profile] | HackerRank https://share.google/ZHvEk8FBIOnAU9d4f
 🔗 
 
 ## 💻 Learning Focus
